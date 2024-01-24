@@ -12,6 +12,8 @@ If you cant get our software -
 
 ***✅HWID Changer integration***
 
+![2](https://github.com/Minekis/The-Finals-Menu-Dullwave/assets/157570412/4a77d0d2-ba24-46b3-b250-24d56e416d75)
+
 #  Ｆｕｎｃｔｉ⚙️ｎｓ:
 
 ### 🔻Aim
